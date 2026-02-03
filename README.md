@@ -1,1 +1,2 @@
-# NNPTUD_Ngay2_bai2
+2280602760
+Nguyễn Trường Sơn
